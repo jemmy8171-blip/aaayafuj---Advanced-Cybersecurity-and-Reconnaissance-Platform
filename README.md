@@ -210,4 +210,6 @@ You are free to use, modify, and distribute this software in accordance with the
 
 aaayafuj is built for those who value precision, discipline, and depth.
 
-If you understand it — you belong here.
+* The ordinary soldier will reign
+* 1.1.1.25.1.6.21.10
+* 👑
